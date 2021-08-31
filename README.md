@@ -1,2 +1,0 @@
-# mort-subite
-alcoholisten geweld
